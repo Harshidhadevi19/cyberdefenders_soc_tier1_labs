@@ -1,1 +1,1 @@
-Build your ability to identify and identify basic security incidents  
+🚀 **Start your journey by building the ability to identify and respond to basic security incidents!**
